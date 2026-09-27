@@ -1,0 +1,2 @@
+# premium-emerald-facet-001-emerald-faceting-pavilion-cu
+Tired of losing your faceting angles and pavilion measurements across sticky notes and scrap paper? This Notion workspace turns your emerald-cutting knowledge into a master blueprint.  It solves the chaos of learning emerald faceting by giving you a centralized system to document every cut, angle, and polish step. No more forgotten settings—just a
